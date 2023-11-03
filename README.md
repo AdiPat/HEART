@@ -14,7 +14,7 @@ HEART stands for "Heat Electric Amplificiation Resonative Tubes". The architectu
 ### Message From The Creator
 Surprise, MFs! 
 
-[Listen To Tech Talk (EBITDA) by U (The Unborn)]([url](https://soundcloud.com/u-hip-hop/tech-talk-ebitda?si=39e4d8f75c974d239d12c4f4c6b15b00&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)https://soundcloud.com/u-hip-hop/tech-talk-ebitda?si=39e4d8f75c974d239d12c4f4c6b15b00&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
+[Listen To Tech Talk (EBITDA) by U (The Unborn)](https://soundcloud.com/u-hip-hop/tech-talk-ebitda?si=39e4d8f75c974d239d12c4f4c6b15b00&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing)
 
 ### Contributors
 - AP
