@@ -4,6 +4,6 @@ Healthcare Educational AI
 
 Surprise, MFs! 
 
-Contributors:
+### Contributors
 - AP
 - BG
